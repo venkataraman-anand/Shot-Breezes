@@ -10,7 +10,7 @@
   - (Nov 1 5p - Ravana அகங்காரம் analysis via audio on noisy street)
     - https://chatgpt.com/share/6ae9869b-2b50-83e8-952b-abd7fc5c2b28
     - https://share.gemini.google/30S4FTPRSThJ (prev night)
-  - https://chatgpt.com/share/6ae9860e-f320-83e8-b2cd-917315d83d22 (Nov 3 11:45a - Nitpicking பித்தா பிறைசூடி) 
+  - https://chatgpt.com/share/6ae9860e-eba8-83ee-9637-ab7ee5d52b52 (Nov 3 11:45a - Nitpicking பித்தா பிறைசூடி) 
   - [https://chatgpt.com/share/6aeab581-cff4-83e8-a8be-8daf54996b59](https://chatgpt.com/share/6aeab581-cff4-83e8-a8be-8daf54996b59) (Nov 4 10a - Shot Breezes)
   - https://chatgpt.com/share/6aec1524-8f78-83e8-ab1c-473dd292ee83 (Nov 4, 5p, enroute amid street noise: Fireworks to Etymology of புஸ்வானம்)
   - 
