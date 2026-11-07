@@ -8,7 +8,7 @@
   - https://chatgpt.com/share/6ae5c60c-6ca0-83e8-ad23-61e2c60077de  (feather on my slipper) 
   - https://gemini.google.com/app/9742c8e31bc13fb2 (Reviewing random old writings) 
 * Nov
-  - (Nov 1 5p - Ravana அகங்காரம் analysis via audio on noisy street)
+  - (Nov 1 5p - Ravana அகங்காரம்/defeat via audio on noisy street)
     - https://chatgpt.com/share/6ae9869b-2b50-83e8-952b-abd7fc5c2b28
     - https://share.gemini.google/30S4FTPRSThJ (prev night)
     - https://chatgpt.com/share/6aec6ddc-4d80-83e8-8843-801be5b7667b (Nov 3 11:45a - Nitpicking பித்தா பிறைசூடி to ChatGPT design bug) 
