@@ -1,5 +1,6 @@
 * Sep 2026
-  - https://share.gemini.google/5ofIsYB2fjni (Domain specific LLMs for Conduit) 
+  - https://chatgpt.com/share/6aeed80b-6790-83e8-ae91-387496309377 (Linguistic deep structure - Scientific method - Grace - Humility)
+  - https://share.gemini.google/5ofIsYB2fjni (Domain specific LLMs for Conduit)
 * Oct 2026
   - https://chatgpt.com/share/6adb18ff-0714-83ee-9c04-b934565ef61f (Kangana Ranaut)
   - [https://chatgpt.com/share/6ae454b2-5fe4-83ee-a1fa-0d71203fe87d](https://chatgpt.com/share/6aeaaf7a-f1e0-83e8-987a-3d37c88a0501) (ஜென்ம நட்சத்திரம்-misc metaphys-goats-reddit) 
