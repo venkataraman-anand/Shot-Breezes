@@ -1,4 +1,5 @@
 * Nov
+  - https://chatgpt.com/share/6af4331e-cbc8-83ee-a94b-58ec5ae03e61 (Unusual rhymes and easter Eggs in the great battle)
   - https://chatgpt.com/share/6af41f02-9134-83ee-8c22-aa566ed9b410 (Nov 11, 9a, Biblical quote "Judge not" - Jesus - morality - pragmatism)
   - https://share.gemini.google/8Ewn2eLdG8JX (Nov 10 7p, enroute back, Borrowed Paly homework challenge Importance of being Earnest alternate ending)
   - https://chatgpt.com/share/6af2f3ad-4c28-83e8-9dc6-ceb306f6479f (Nov 10, Rhymes to King to Palo Alto Guardian - Sweet Grapes)
