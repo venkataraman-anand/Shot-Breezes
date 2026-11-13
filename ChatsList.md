@@ -1,4 +1,6 @@
 * Nov
+  - https://chatgpt.com/share/6af6a4c4-bb3c-83ee-98c1-4f65d99a97ac (Nov 13 11a, பற்றிலன் or பச்சிளங்?)
+  - https://chatgpt.com/share/6af6a651-31a8-83ee-83da-0e8b8d587212 (Nov 13 9a, cat's vision, dog's smell, shangri la, hamlet)
   - https://chatgpt.com/share/6af43c3b-3390-83ee-a026-5e31f6a7fe09 (Nov 11 3p, தலைக்கு வந்தது தலைப்பாகையுடன் போச்சு to Trawick notes on love)
   - https://chatgpt.com/share/6af4331e-cbc8-83ee-a94b-58ec5ae03e61 (Nov 11, 2:30p, Rhyme puzzle and easter Eggs in the great battle)
   - https://chatgpt.com/share/6af41f02-9134-83ee-8c22-aa566ed9b410 (Nov 11, 9a, Biblical quote "Judge not" - Jesus - morality - wisdom)
